@@ -14,3 +14,5 @@ January 31, 2025 - Principles of Ethics in Information Technology
 Feb 1, 2025 - Data structures
 
 Feb 2, 2025 - How to Influence friends.
+
+Feb 3, 2025 - What I wish I knew When I was 20.
