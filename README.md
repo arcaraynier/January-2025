@@ -16,3 +16,5 @@ Feb 1, 2025 - Data structures
 Feb 2, 2025 - How to Influence friends.
 
 Feb 3, 2025 - What I wish I knew When I was 20.
+
+Feb 4, 2025 - Keep moving forward
