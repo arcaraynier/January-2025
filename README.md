@@ -20,3 +20,5 @@ Feb 3, 2025 - What I wish I knew When I was 20.
 Feb 4, 2025 - Keep moving forward
 
 Feb 5, 2025 - Don't know where to start again.
+
+Feb 6, 2025 - I have final interview, do your best self.
