@@ -25,3 +25,5 @@ Feb 6, 2025 - I have final interview, do your best self.
 
 
 Feb 15, 2025 - pressure, stressed and anxiety is how can I say this?
+
+Feb 17, 2025 - No yet job and accomplishments.
