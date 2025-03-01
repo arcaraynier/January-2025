@@ -21,7 +21,7 @@ Feb 4, 2025 - Keep moving forward
 
 Feb 5, 2025 - Don't know where to start again.
 
-Feb 6, 2025 - I have final interview, do your best self.
+Feb 6, 2025 - I have final interview, do your best self. hwy
 
 
 Feb 15, 2025 - pressure, stressed and anxiety is how can I say this?
