@@ -38,4 +38,5 @@ Feb 25, 2025 - greeted her
 Feb 26, 2025 - yes I greeted heeer
 Feb 27, 2025 - Not yet. its 6:32 am 
 
-march 05, 2025  hay. maywork na pero gakaoverwhelm
+march 05, 2025  hay. maywork na pero gakaoverwhelm, ara gid ang libakanay, favoritism.
+march 06, 2025 
