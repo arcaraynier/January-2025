@@ -48,4 +48,5 @@ March 7, 2025 - birthday juren great
 
 March 15, 2025 - pauratex, mcdo, then duty biskan day off para magsabay sa last duty ni sir renz kag mag patudlo reimage. hay kaslow learner sakon/
 March 16, 2025 overwhelming , teaching new ojts
+March 17, 2025 11:48 overtime ty naman, pag abot ko ari di si kekel, manang lyn, nong jerson, mika, manang faith, peter and kaykay ara sila sasagwa naga tambay kag ga istoryahanay, so happy and wala lang. nagpaleganes sila daan mga 11:20 na sila kapauli, with kids.
 
