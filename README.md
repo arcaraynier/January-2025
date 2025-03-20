@@ -52,3 +52,4 @@ March 17, 2025 11:48 overtime ty naman, pag abot ko ari di si kekel, manang lyn,
 March 18, 2025 , Sleep with nanay and greeted her, woke up around4:00 she went to church and I have duty. tommorrow is her birthday happy 65th birthday nanay. sensya wla pako gid gift or ano gid.
 
 March 19, 2025 - Its nanay's birthday! happy 65th birthday nanay I love you. wishing you good health!. its 3:30 am here, may duty pako 6 am karon. I hope indi ko mag overtime. hay buhay.
+March 20, 2025 - Nanay
