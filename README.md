@@ -54,3 +54,6 @@ March 18, 2025 , Sleep with nanay and greeted her, woke up around4:00 she went t
 March 19, 2025 - Its nanay's birthday! happy 65th birthday nanay I love you. wishing you good health!. its 3:30 am here, may duty pako 6 am karon. I hope indi ko mag overtime. hay buhay.
 March 20, 2025 - Nanay
 March 21 sighhh
+
+
+March 27, 2025 - duty at 6 am bugtaw at 4am, thanks Tay and nay.
