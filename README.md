@@ -64,3 +64,5 @@ March 28, 2025
 April 2, 2025, sigh  it's 5:28 am, nanay go to church
 
 April 4, 2025 - Friday, 3:48 am here, finishing self paced courses. watching tutorial videos on youtube and also duty on 6:00 am. nagsalod tubig.
+
+April 7, 2025- Monday its 6:42 am here, helping kekel with nibiki practice quiz. peter is watching onepiece new ep from their hiatus last october.
