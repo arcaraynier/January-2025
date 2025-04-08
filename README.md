@@ -66,3 +66,5 @@ April 2, 2025, sigh  it's 5:28 am, nanay go to church
 April 4, 2025 - Friday, 3:48 am here, finishing self paced courses. watching tutorial videos on youtube and also duty on 6:00 am. nagsalod tubig.
 
 April 7, 2025- Monday its 6:42 am here, helping kekel with nibiki practice quiz. peter is watching onepiece new ep from their hiatus last october.
+
+April 8 , 2025 - Tuesday its 7:54 am. helping kekel with nibiki, pro si manang faith nag continue answer kay sleepy ako, kay nakakaistress atong si crystal returning her asset with 1 damage monitor kay pag deliver sa iya may damage na daw.
