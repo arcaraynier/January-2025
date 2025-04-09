@@ -67,4 +67,8 @@ April 4, 2025 - Friday, 3:48 am here, finishing self paced courses. watching tut
 
 April 7, 2025- Monday its 6:42 am here, helping kekel with nibiki practice quiz. peter is watching onepiece new ep from their hiatus last october.
 
-April 8 , 2025 - Tuesday its 7:54 am. helping kekel with nibiki, pro si manang faith nag continue answer kay sleepy ako, kay nakakaistress atong si crystal returning her asset with 1 damage monitor kay pag deliver sa iya may damage na daw.
+April 8 , 2025 - Tuesday its 7:54 am. helping kekel with nibiki, pro si manang faith nag continue answer kay sleepy ako, kay nakakaistress atong si crystal returning her asset with 1 damage monitor kay pag deliver sa iya may damage na daw. storya kami day manng jen, mika, manang faith, manag lyn, kwa exam nibiki.
+
+April 9, 2025 - Wednesday, Day of Valor - guimaras board roam problem with connecting to jarvis due to needed port conversion. ara gapon si  manang lyn, kekel, two kids, mc, 
+
+April 10, 2025 - Thursday - Its 5:12 am here duty at 6:00.
