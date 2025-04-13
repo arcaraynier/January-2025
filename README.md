@@ -72,3 +72,5 @@ April 8 , 2025 - Tuesday its 7:54 am. helping kekel with nibiki, pro si manang f
 April 9, 2025 - Wednesday, Day of Valor - guimaras board roam problem with connecting to jarvis due to needed port conversion. ara gapon si  manang lyn, kekel, two kids, mc, 
 
 April 10, 2025 - Thursday - Its 5:12 am here duty at 6:00.
+
+April 14, 2025 - Monday, Its my day off.
