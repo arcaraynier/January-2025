@@ -13,7 +13,7 @@ January 30, 2025 Atomic Habits
 
 January 31, 2025 - Principles of Ethics in Information Technologyd
 b
-Feb 1, 2025 - Data structures.js.
+Feb 1, 2025 - Data structures.js..
 
 Feb 2, 2025 - How to Influence friends.
 
