@@ -9,7 +9,7 @@ January 26, 2025 - Reading How to Win Friendship and Influence People.ds
 
 January 27, 2025 - Data Structures in Java
 
-January 30, 2025 Atomic Habitss
+January 30, 2025 Atomic Habitss.
 
 January 31, 2025 - Principles of Ethics in Information Technologyd
 b
