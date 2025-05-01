@@ -3,7 +3,7 @@ Update
 Hello self its march 11, 2025, nanay birthday is approaching! sigh you have work now, sigh. 
 future self i hope you make yourself proud and fulfill all the promises that nanay said .
 
-January 25, 2025.jdns
+January 25, 2025.jdns.
 
 January 26, 2025 - Reading How to Win Friendship and Influence People.ds
 
