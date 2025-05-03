@@ -74,3 +74,5 @@ April 9, 2025 - Wednesday, Day of Valor - guimaras board roam problem with conne
 April 10, 2025 - Thursday - Its 5:12 am here duty at 6:00.
 
 April 14, 2025 - Monday, Its my day off.
+
+May 3, 2025 - 10:!3 pm  day off buwas. saturday today
