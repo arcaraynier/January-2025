@@ -78,3 +78,5 @@ April 14, 2025 - Monday, Its my day off.
 May 3, 2025 - 10:!3 pm  day off buwas. saturday today
 
 May 12, 2025 - Election day, kadto kami ni manang jen sa jollibee upod mc, tas kita namon si peter, orderan tne namon si mika and manang faith jollibee. timing nakita ko si peter nagahulat order. tas after vote kita namon manang che pasulod. then pagwa kami check namonsa  orange kung may pancho pa, wla na ubos na, tas nagpasupermart kami bakal posporo. then vitamins ni gianna then wla sa supermart nga grace then kadto sa kilid palawan nga grace tas, diretso sa gulpi ko kita polvoron bakal ko, 2x 10 pesos tanan tas daw nauhaw ko nag bakal fruit milk tea, 98 pesos, libre ko manang jen and mc tunga cla, then puli tulog then after bugtaw my pamahaw to joe, tas nag kaon ko tas bitin nag bakal ko loaf, kag tinapay sa miracles and manolette, kita ko dason ta emi sa miracles storya gamay, then . puli then nanghakot nong jerson kag peter sa balas kag bato para mabuksan ang pertahan daw preiea kag prea2. then pahuway di sa kwarto with mj and mc.
+
+May 17, 2025 - wla ko kauppod pa leganes lente nag overtime nanaman ko 1 hr. awattt 
