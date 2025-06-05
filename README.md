@@ -82,3 +82,4 @@ May 12, 2025 - Election day, kadto kami ni manang jen sa jollibee upod mc, tas k
 May 17, 2025 - wla ko kauppod pa leganes lente nag overtime nanaman ko 1 hr. awattt 
 
 June 4, 2025- 6:32 am
+June 5, 2025 - 7:44 pm. work nanaman
